@@ -3,7 +3,9 @@ Placed in the Top 3 for a Business Intelligence Competition presented by Datatho
 
 
 Demonstration:
+
 Full Demonstration: https://www.youtube.com/watch?v=-rJ_-fy1Vj4
+
 Short Demonstration: https://ahmedmohamed0316.wixsite.com/ahmed/portfolio?pgid=iqtuyfne-cff6babd-99e7-40cb-8a64-d4af1db02848
 
 
